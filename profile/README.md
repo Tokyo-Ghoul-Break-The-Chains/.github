@@ -37,38 +37,3 @@ The story of **Tokyo Ghoul: Break the Chains** closely follows the events of the
 
 ## Download the APK
 Enjoy this exciting card game and experience the world of **Tokyo Ghoul** like never before.  
-https://github.com/Sprunki-Retake-Game-Free
-
-https://github.com/Sprunki-Mods-Online-Free
-
-https://github.com/Sprunki-Mustard-Game-Free
-
-https://github.com/Sprunki-Remastered-Game
-
-https://github.com/Sprunki-Phase-2-Free
-
-https://github.com/Sprunki-Phase-3-Free
-
-https://github.com/Sprunki-Phase-4-Online
-
-https://github.com/Sprunki-Phase-5-Online
-
-https://github.com/Sprunki-Phase-6-Free
-
-https://github.com/Sprunki-Phase-7-Free
-
-https://github.com/Sprunki-Phase-8-Online
-
-https://github.com/Sprunki-Phase-9-Free
-
-https://github.com/Sprunked-Game-Online
-
-https://github.com/Sprunki-Swapped-online
-
-https://github.com/Sprunki-Poppy-Playtime-Online
-
-https://github.com/Sprunki-But-Everyone-Is-Alive-Free
-
-https://github.com/Sprunki-Sprinkle-Online
-
-https://github.com/Sprunki-Phase-1-Game
